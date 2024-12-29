@@ -1,5 +1,5 @@
 //created by Danny
-//wa.me/255697608274
+//wa.me/221773702040
 //Deploy and enjoy
 //Credits (Creepy technology)
 //Follow our channel https://whatsapp.com/channel/0029VacQFw65Ui2gGv0Kwk1r
